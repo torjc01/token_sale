@@ -1,1 +1,1 @@
-Ta de bobeira!
+Que eu tô de bobeira!
